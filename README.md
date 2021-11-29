@@ -3,10 +3,10 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ... iOS 15
-- 🌱 I’m currently learning ... Hacking
-- 👯 I’m looking to collaborate on ... Hacking 
-- 🤔 I’m looking for help with ... iOS 15
+- 🔭 I’m currently working on ... Counter Terrorism
+- 🌱 I’m currently learning ... Hot to Stop further attack
+- 👯 I’m looking to collaborate on ... U.S Central Command
+- 🤔 I’m looking for help with ... Intelligent Ideas
 - 💬 Ask me about ... Anything 
 - 📫 How to reach me: ... @alexanthonym007
 - 😄 Pronouns: ... I'm on it
