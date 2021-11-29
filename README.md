@@ -10,5 +10,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... Anything 
 - 📫 How to reach me: ... @alexanthonym007
 - 😄 Pronouns: ... I'm on it
-- ⚡ Fun fact: ... I have been finish
+- ⚡ Fun fact: ... Bring it on
 -->
